@@ -1,1 +1,1 @@
-# Qolo---FinTech-Business-Case
+# Qolo_-_FinTech_Business_Case
